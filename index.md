@@ -6,8 +6,6 @@
 
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
-![640](https://github.com/FTMMaoGe/backup/blob/c5ae5419298401788d9bca9d7eb052ad63556cdf/640.jpg)
-
 # 2022-01th-03th：
 
 [2022-03-08 飞天猫兄弟盟传播图文组采编招募](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2022-01th-03th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202022-03-08%20%E4%BC%A0%E6%92%AD%E5%9B%BE%E6%96%87%E7%BB%84%E9%87%87%E7%BC%96%E6%8B%9B%E5%8B%9F.html)
@@ -167,7 +165,7 @@
 
 [2021-09-19 兄弟沙龙24｜配音大佬线上伪音教学](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-19%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9924%EF%BD%9C%E9%85%8D%E9%9F%B3%E5%A4%A7%E4%BD%AC%E7%BA%BF%E4%B8%8A%E4%BC%AA%E9%9F%B3%E6%95%99%E5%AD%A6.html)
 
-[2021-09-17 兄弟刊｜兄弟诗集：穿越大半个中国去___你](https://htmlpreview.github.io//?/https://github.com/FTMMaoGe/2021-8th-12th/blob/527347c16f481202612cc123a05c9bf3bd93a81d/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-17%20%E5%85%84%E5%BC%9F%E5%88%8A%EF%BD%9C%E5%85%84%E5%BC%9F%E8%AF%97%E9%9B%86%EF%BC%9A%E7%A9%BF%E8%B6%8A%E5%A4%A7%E5%8D%8A%E4%B8%AA%E4%B8%AD%E5%9B%BD%E5%8E%BB___%E4%BD%A0.html)
+[2021-09-17 兄弟刊｜兄弟诗集：穿越大半个中国去___你](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/527347c16f481202612cc123a05c9bf3bd93a81d/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-17%20%E5%85%84%E5%BC%9F%E5%88%8A%EF%BD%9C%E5%85%84%E5%BC%9F%E8%AF%97%E9%9B%86%EF%BC%9A%E7%A9%BF%E8%B6%8A%E5%A4%A7%E5%8D%8A%E4%B8%AA%E4%B8%AD%E5%9B%BD%E5%8E%BB___%E4%BD%A0.html)
 
 [2021-09-11 兄弟刊 - 我们连续打了半个小时，意犹未尽](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-09-11%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E6%88%91%E4%BB%AC%E8%BF%9E%E7%BB%AD%E6%89%93%E4%BA%86%E5%8D%8A%E4%B8%AA%E5%B0%8F%E6%97%B6%EF%BC%8C%E6%84%8F%E7%8A%B9%E6%9C%AA%E5%B0%BD.html) 
     
