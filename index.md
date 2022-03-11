@@ -237,7 +237,7 @@
 
 [2021-06-29 转发-跨性别反暴力手册发布](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-29%20%E8%BD%AC%E5%8F%91-%E8%B7%A8%E6%80%A7%E5%88%AB%E5%8F%8D%E6%9A%B4%E5%8A%9B%E6%89%8B%E5%86%8C%E5%8F%91%E5%B8%83.html)
 
-[2021-06-27 兄弟沙龙22 -活动回顾：你不知道的彩虹电影出血大分享！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-27%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9922%20-%E6%B4%BB%E5%8A%A8%E5%9B%9E%E9%A1%BE%EF%BC%9A%E4%BD%A0%E4%B8%8D%E7%9F%A5%E9%81%93%E7%9A%84%E5%BD%A9%E8%99%B9%E7%94%B5%E5%BD%B1%E5%87%BA%E8%A1%80%E5%A4%A7%E5%88%86%E4%BA%AB%EF%BC%81.pdf)
+[2021-06-27 兄弟沙龙22 -活动回顾：你不知道的彩虹电影出血大分享！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/backup/blob/6a75fae948a197da569d558485c185f370868b21/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-27%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9922%20-%E6%B4%BB%E5%8A%A8%E5%9B%9E%E9%A1%BE%EF%BC%9A%E4%BD%A0%E4%B8%8D%E7%9F%A5%E9%81%93%E7%9A%84%E5%BD%A9%E8%99%B9%E7%94%B5%E5%BD%B1%E5%87%BA%E8%A1%80%E5%A4%A7%E5%88%86%E4%BA%AB%EF%BC%81.pdf)
 
 [2021-06-25 兄弟刊 - 小女孩指着我：“那个男生为什么进女厕所？”](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-25%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20%E5%B0%8F%E5%A5%B3%E5%AD%A9%E6%8C%87%E7%9D%80%E6%88%91%EF%BC%9A%E2%80%9C%E9%82%A3%E4%B8%AA%E7%94%B7%E7%94%9F%E4%B8%BA%E4%BB%80%E4%B9%88%E8%BF%9B%E5%A5%B3%E5%8E%95%E6%89%80%EF%BC%9F%E2%80%9D.html)
 
@@ -333,7 +333,7 @@
 
 [2021-02-07 欢乐吐槽会](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-07%20%E6%AC%A2%E4%B9%90%E5%90%90%E6%A7%BD%E4%BC%9A.html)
 
-[2021-02-04 兄弟沙龙-双节免费，猫哥约你第18期树洞相见](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-04%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%99-%E5%8F%8C%E8%8A%82%E5%85%8D%E8%B4%B9%EF%BC%8C%E7%8C%AB%E5%93%A5%E7%BA%A6%E4%BD%A0%E7%AC%AC18%E6%9C%9F%E6%A0%91%E6%B4%9E%E7%9B%B8%E8%A7%81.pdf)
+[2021-02-04 兄弟沙龙-双节免费，猫哥约你第18期树洞相见](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/backup/blob/6a75fae948a197da569d558485c185f370868b21/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-04%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%99-%E5%8F%8C%E8%8A%82%E5%85%8D%E8%B4%B9%EF%BC%8C%E7%8C%AB%E5%93%A5%E7%BA%A6%E4%BD%A0%E7%AC%AC18%E6%9C%9F%E6%A0%91%E6%B4%9E%E7%9B%B8%E8%A7%81.pdf)
 
 [2021-02-03 兄弟盟猫哥上线｜让情绪有个出口](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-02-03%20%E5%85%84%E5%BC%9F%E7%9B%9F%E7%8C%AB%E5%93%A5%E4%B8%8A%E7%BA%BF%EF%BD%9C%E8%AE%A9%E6%83%85%E7%BB%AA%E6%9C%89%E4%B8%AA%E5%87%BA%E5%8F%A3%EF%BC%81.htm)
 
