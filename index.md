@@ -6,7 +6,7 @@
 
 2019年5月11日成立，是国内首个仅关注FTX/FTM兄弟需求的机构。为其提供商业服务改善群体现状，议题包括不限于同伴支持、商业合作、社群培力、公众教育等。（兄弟：FTX+FTM）
 
-![](https://github.com/FTMMaoGe/backup/blob/c5ae5419298401788d9bca9d7eb052ad63556cdf/640.jpg)
+![](D:\RJ)
 
 # 2022-01th-03th：
 
