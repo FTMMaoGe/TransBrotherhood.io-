@@ -242,6 +242,7 @@
 [2021-06-18 兄弟刊 - Yolo：我感叹着社会对于男女性别的双标](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-18%20%E5%85%84%E5%BC%9F%E5%88%8A%20-%20Yolo%EF%BC%9A%E6%88%91%E6%84%9F%E5%8F%B9%E7%9D%80%E7%A4%BE%E4%BC%9A%E5%AF%B9%E4%BA%8E%E7%94%B7%E5%A5%B3%E6%80%A7%E5%88%AB%E7%9A%84%E5%8F%8C%E6%A0%87.html)
 
 [2021-06-15 兄弟沙龙21 - 来聊聊那些让你深刻记忆的彩虹电影~](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-15%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9921%20-%20%E6%9D%A5%E8%81%8A%E8%81%8A%E9%82%A3%E4%BA%9B%E8%AE%A9%E4%BD%A0%E6%B7%B1%E5%88%BB%E8%AE%B0%E5%BF%86%E7%9A%84%E5%BD%A9%E8%99%B9%E7%94%B5%E5%BD%B1%7E.html)
+
 [2021-06-11 兄弟刊-FTM的我，上对了厕所是什么感受？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-11%20%E5%85%84%E5%BC%9F%E5%88%8A-FTM%E7%9A%84%E6%88%91%EF%BC%8C%E4%B8%8A%E5%AF%B9%E4%BA%86%E5%8E%95%E6%89%80%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%9F%E5%8F%97%EF%BC%9F.html)
 
 [2021-06-09 征集-跨性别兄弟：非异性恋故事](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-09%20%E5%BE%81%E9%9B%86-%E8%B7%A8%E6%80%A7%E5%88%AB%E5%85%84%E5%BC%9F%EF%BC%9A%E9%9D%9E%E5%BC%82%E6%80%A7%E6%81%8B%E6%95%85%E4%BA%8B.html)
