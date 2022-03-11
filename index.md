@@ -139,7 +139,7 @@
 
 [2021-10-22 兄弟刊-套破了怎么办！？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-10-22%20%E5%85%84%E5%BC%9F%E5%88%8A-%E5%A5%97%E7%A0%B4%E4%BA%86%E6%80%8E%E4%B9%88%E5%8A%9E%EF%BC%81%EF%BC%9F.html)
 
-[2021-10-22 【游戏】酷儿&amp;amp;性别友好游戏安利【02】](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-10-22%20%E3%80%90%E6%B8%B8%E6%88%8F%E3%80%91%E9%85%B7%E5%84%BF%26amp%3B%E6%80%A7%E5%88%AB%E5%8F%8B%E5%A5%BD%E6%B8%B8%E6%88%8F%E5%AE%89%E5%88%A9%E3%80%9002%E3%80%91.html)
+[2021-10-22 【游戏】性别友好游戏安利](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-10-22%20%E3%80%90%E6%B8%B8%E6%88%8F%E3%80%91%E9%85%B7%E5%84%BF%26amp%3B%E6%80%A7%E5%88%AB%E5%8F%8B%E5%A5%BD%E6%B8%B8%E6%88%8F%E5%AE%89%E5%88%A9%E3%80%9002%E3%80%91.html)
 
 [2021-10-15 兄弟刊-猫哥隔屏尴尬，猫爪抠出一栋别墅](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-10-15%20%E5%85%84%E5%BC%9F%E5%88%8A-%E7%8C%AB%E5%93%A5%E9%9A%94%E5%B1%8F%E5%B0%B4%E5%B0%AC%EF%BC%8C%E7%8C%AB%E7%88%AA%E6%8A%A0%E5%87%BA%E4%B8%80%E6%A0%8B%E5%88%AB%E5%A2%85.html)
 
@@ -208,7 +208,7 @@
 
 [ 2021-08-06 推广-遭遇事件需要维权，兄弟们可以求助谁？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-08-06%20%E6%8E%A8%E5%B9%BF-%E9%81%AD%E9%81%87%E4%BA%8B%E4%BB%B6%E9%9C%80%E8%A6%81%E7%BB%B4%E6%9D%83%EF%BC%8C%E5%85%84%E5%BC%9F%E4%BB%AC%E5%8F%AF%E4%BB%A5%E6%B1%82%E5%8A%A9%E8%B0%81%EF%BC%9F.html)
 
-[2021-08-06 推广-郑州刺青师入驻兄弟盟，手稿设计&amp;amp;刺青皆享特价！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-08-06%20%E6%8E%A8%E5%B9%BF-%E9%83%91%E5%B7%9E%E5%88%BA%E9%9D%92%E5%B8%88%E5%85%A5%E9%A9%BB%E5%85%84%E5%BC%9F%E7%9B%9F%EF%BC%8C%E6%89%8B%E7%A8%BF%E8%AE%BE%E8%AE%A1%26amp%3B%E5%88%BA%E9%9D%92%E7%9A%86%E4%BA%AB%E7%89%B9%E4%BB%B7%EF%BC%81.html)
+[2021-08-06 推广-郑州刺青师入驻兄弟盟，手稿设计;刺青皆享特价！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-08-06%20%E6%8E%A8%E5%B9%BF-%E9%83%91%E5%B7%9E%E5%88%BA%E9%9D%92%E5%B8%88%E5%85%A5%E9%A9%BB%E5%85%84%E5%BC%9F%E7%9B%9F%EF%BC%8C%E6%89%8B%E7%A8%BF%E8%AE%BE%E8%AE%A1%26amp%3B%E5%88%BA%E9%9D%92%E7%9A%86%E4%BA%AB%E7%89%B9%E4%BB%B7%EF%BC%81.html)
 
 [2021-08-06 猫哥信箱1.4-兄弟群体里的鄙视链](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-8th-12th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-08-06%20%E7%8C%AB%E5%93%A5%E4%BF%A1%E7%AE%B11.4-%E5%85%84%E5%BC%9F%E7%BE%A4%E4%BD%93%E9%87%8C%E7%9A%84%E9%84%99%E8%A7%86%E9%93%BE.html)
 
