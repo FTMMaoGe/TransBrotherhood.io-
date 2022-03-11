@@ -229,7 +229,7 @@
 
 [2021-07-06 兄弟沙龙22-线上心理：多点关“心”多点爱](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-06%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9922-%E7%BA%BF%E4%B8%8A%E5%BF%83%E7%90%86%EF%BC%9A%E5%A4%9A%E7%82%B9%E5%85%B3%E2%80%9C%E5%BF%83%E2%80%9D%E5%A4%9A%E7%82%B9%E7%88%B1.html) 
 
-[2021-07-04 推广-郑州刺青师入驻兄弟盟，手稿设计&amp;amp;刺青皆享特价！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-04%20%E6%8E%A8%E5%B9%BF-%E9%83%91%E5%B7%9E%E5%88%BA%E9%9D%92%E5%B8%88%E5%85%A5%E9%A9%BB%E5%85%84%E5%BC%9F%E7%9B%9F%EF%BC%8C%E6%89%8B%E7%A8%BF%E8%AE%BE%E8%AE%A1%26amp%3B%E5%88%BA%E9%9D%92%E7%9A%86%E4%BA%AB%E7%89%B9%E4%BB%B7%EF%BC%81.html)
+[2021-07-04 推广-郑州刺青师入驻兄弟盟，手稿设计;刺青皆享特价！](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-04%20%E6%8E%A8%E5%B9%BF-%E9%83%91%E5%B7%9E%E5%88%BA%E9%9D%92%E5%B8%88%E5%85%A5%E9%A9%BB%E5%85%84%E5%BC%9F%E7%9B%9F%EF%BC%8C%E6%89%8B%E7%A8%BF%E8%AE%BE%E8%AE%A1%26amp%3B%E5%88%BA%E9%9D%92%E7%9A%86%E4%BA%AB%E7%89%B9%E4%BB%B7%EF%BC%81.html)
 [2021-07-02 兄弟刊-看到我的真容，他大哭……](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-07-02%20%E5%85%84%E5%BC%9F%E5%88%8A-%E7%9C%8B%E5%88%B0%E6%88%91%E7%9A%84%E7%9C%9F%E5%AE%B9%EF%BC%8C%E4%BB%96%E5%A4%A7%E5%93%AD%E2%80%A6%E2%80%A6.html)
 
 [2021-06-29 转发-跨性别反暴力手册发布](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-06-29%20%E8%BD%AC%E5%8F%91-%E8%B7%A8%E6%80%A7%E5%88%AB%E5%8F%8D%E6%9A%B4%E5%8A%9B%E6%89%8B%E5%86%8C%E5%8F%91%E5%B8%83.html)
@@ -316,7 +316,7 @@
 
 [2021-03-12 兄弟沙龙19 - 勇敢“现”身，缝“胸”化吉](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-12%20%E5%85%84%E5%BC%9F%E6%B2%99%E9%BE%9919%20-%20%E5%8B%87%E6%95%A2%E2%80%9C%E7%8E%B0%E2%80%9D%E8%BA%AB%EF%BC%8C%E7%BC%9D%E2%80%9C%E8%83%B8%E2%80%9D%E5%8C%96%E5%90%89.html)
 
-[2021-03-11 双管齐下：兄弟群&amp;amp;伴侣群，你嗨哪边？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-11%20%E5%8F%8C%E7%AE%A1%E9%BD%90%E4%B8%8B%EF%BC%9A%E5%85%84%E5%BC%9F%E7%BE%A4%26amp%3B%E4%BC%B4%E4%BE%A3%E7%BE%A4%EF%BC%8C%E4%BD%A0%E5%97%A8%E5%93%AA%E8%BE%B9%EF%BC%9F.html)
+[2021-03-11 双管齐下：兄弟群&伴侣群，你嗨哪边？](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-11%20%E5%8F%8C%E7%AE%A1%E9%BD%90%E4%B8%8B%EF%BC%9A%E5%85%84%E5%BC%9F%E7%BE%A4%26amp%3B%E4%BC%B4%E4%BE%A3%E7%BE%A4%EF%BC%8C%E4%BD%A0%E5%97%A8%E5%93%AA%E8%BE%B9%EF%BC%9F.html)
 
 [2021-03-06 投票｜兄弟盟换什么logo？由你来决定](https://htmlpreview.github.io//?https://github.com/FTMMaoGe/2021-1th-7th/blob/main/%5B%E9%A3%9E%E5%A4%A9%E7%8C%AB%E5%85%84%E5%BC%9F%E7%9B%9F%5D%20-%202021-03-06%20%E6%8A%95%E7%A5%A8%EF%BD%9C%E5%85%84%E5%BC%9F%E7%9B%9F%E6%8D%A2%E4%BB%80%E4%B9%88logo%EF%BC%9F%E7%94%B1%E4%BD%A0%E6%9D%A5%E5%86%B3%E5%AE%9A-.html)
 
