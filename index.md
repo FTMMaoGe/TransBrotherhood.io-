@@ -1,10 +1,4 @@
-## Welcome to Trans Brotherhood
-
-You can use the [editor on GitHub](https://github.com/FTMMaoGe/TransBrotherhood.io-/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-# Markdown
+# Welcome to Trans Brotherhood
 
 此为飞天猫兄弟盟公众号备份
 
